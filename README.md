@@ -1,5 +1,5 @@
 # Pledge
-I, (state your name), will take EVERY OPPORTUNITY to advance myself with abandon
+I, Victor Bryan Adams, will take EVERY OPPORTUNITY to advance myself with abandon
 
 Good intentions WILL NOT achieve my goals
 
